@@ -6,22 +6,4 @@ To use this page open the file "xixi.html"
 
 
 p.s. She is the best!
-some hearts for my girlfriend
-─▄████▄████▄
-██▒▒▒▒█▒▒▒▒██(¯`•´¯)
-▀██▒▒▒▒▒▒▒██▀.*•❀•*.
-─▀██▒▒▒▒▒██▀.•..(¯`•´¯)
-───▀██▒██▀(¯`•´¯)*•❀•*
-─────▀█▀…•..*•❀•*
-
-
-
-
-
-
-
-
-
-
-
-.
+I love you! Happy Valentines day!
